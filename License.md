@@ -1,1 +1,1 @@
-These files and code are code to anyone
+These files and code are free to anyone
